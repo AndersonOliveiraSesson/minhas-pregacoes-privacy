@@ -28,6 +28,6 @@ Esta política pode ser atualizada futuramente. Qualquer alteração será publi
 
 ## Contato
 Em caso de dúvidas, entre em contato pelo e-mail:
-**seuemail@email.com**
+**sessonoliveira@gmail.com**
 
 Última atualização: 2026
